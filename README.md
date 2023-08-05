@@ -9,4 +9,4 @@ i love exploring and creating new things.
 - I am from India
 - Ping me at apurvarustagi6@gmail.com
 - open to learna nd collaborate on projects and ideas
-- 
+  
